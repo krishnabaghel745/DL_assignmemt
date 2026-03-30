@@ -1,4 +1,4 @@
-Tool Used
+
 I used Canva to create my Digital Literacy infographic.
 It is a simple and user-friendly design tool with ready-made templates.
 What My Design Shows
